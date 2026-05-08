@@ -1,4 +1,4 @@
-
+Get the ultimate Trello for macOS automation with Trello for macOS ultimate Automation - auto-sync and offline access. Featuring auto-sync and offline access, it's the best choice
 
 
 
